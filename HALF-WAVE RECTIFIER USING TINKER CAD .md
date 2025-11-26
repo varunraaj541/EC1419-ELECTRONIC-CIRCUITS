@@ -9,7 +9,6 @@
 
 <img width="905" height="606" alt="image" src="https://github.com/user-attachments/assets/f39a6fe7-74aa-4efb-a845-e9ee5e2ba3ba" />
 
-![WhatsApp Image 2025-11-26 at 14 15 44_5843aa54](https://github.com/user-attachments/assets/0ffa5e76-ab36-4938-8092-336e243ebbe2)
 
 
 
